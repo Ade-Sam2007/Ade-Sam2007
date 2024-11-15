@@ -1,6 +1,7 @@
-- 👋 Hi, I’m @Ade-Sam2007
-- 👀 I’m interested in learning coding right from scratch
-- 🌱 I’m currently learning html
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me on whatsapp on 09062088629
+- 👋 Hi, I’m @Samsony
+- 👀 I'm taking a career in the SOC field of Cybersecurity.
+- 💞️ I’m looking to collaborate with persons in the field who can help 
+- 📫 How to reach me on whatsapp on +2348026013939
   Adetola Samuel @ facebook
+Linkedin @ Adetola Samuel Oladipupo 
+X @ Cyber_Sam01
